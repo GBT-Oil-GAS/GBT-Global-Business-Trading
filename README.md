@@ -1,1 +1,1 @@
-# GBT-Global-Business-Trading
+# GBT-Global Business Trading
